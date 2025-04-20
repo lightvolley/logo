@@ -1,0 +1,1 @@
+Sorgenti SVG del logo
